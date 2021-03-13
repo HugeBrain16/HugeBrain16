@@ -3,7 +3,7 @@
 ![PepeParty-Fast](https://raw.githubusercontent.com/HugeBrain16/HugeBrain16/main/assets/shake.gif)
 
 yeah i know my username is really dumb, anyway-
-uhh, i makes stuff... lol
+uhh, i make stuff... lol
 
 ### Discord
 Username: **mmm....#4223**</br>
