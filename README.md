@@ -1,6 +1,6 @@
 ### Sup Sup!? It's Me HugeBrain16 🤠🤙
 yeah i know my username is really dumb, anyway-
-uhh, i makes stuff... lol ![PepeParty]()
+uhh, i makes stuff... lol ![PepeParty-Fast](https://raw.githubusercontent.com/HugeBrain16/HugeBrain16/main/assets/party-fast.gif)
 
 ### Discord
 Username: **mmm....#4223**</br>
