@@ -1,6 +1,6 @@
 ### Sup Sup!? It's Me HugeBrain16 🤠🤙
   
-![PepeParty-Fast](https://raw.githubusercontent.com/HugeBrain16/HugeBrain16/main/assets/shake.gif)  
+![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif)  
 yeah i know my username is really dumb, anyway-  
 uhh, i make stuff... lol  
 ### Discord
