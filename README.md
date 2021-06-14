@@ -1,4 +1,4 @@
-### Sup Sup!? It's Me HugeBrain16 🤠🤙
+### Sup Sup!? It's Me HugeBrain16 <img src="https://github.com/HugeBrain16/HugeBrain16/blob/main/assets/pepega.png" width=32 height=32>
   
 ![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif)  
 yeah i know my username is really dumb, anyway-  
