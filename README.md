@@ -1,8 +1,7 @@
-### Sup Sup!? It's Me HugeBrain16 <img src="https://github.com/HugeBrain16/HugeBrain16/blob/main/assets/pepega.png" width=32 height=32>
+### Hello! It's Me HugeBrain16 <img src="https://github.com/HugeBrain16/HugeBrain16/blob/main/assets/pepega.png" width=32 height=32>
   
 ![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif) ![ForsenPls](https://i.imgur.com/zXaGZOm.gif)  
-yeah i know my username is really dumb, anyway-  
-uhh, i make stuff... lol  
+i make stuff  
 ### Discord
 Username: **mmm....#4223**  
 Discord Server: [![Discord](https://img.shields.io/discord/794766440619049012?color=7389D8&label=Discord&logo=Discord&logoColor=6A7EC2)](https://discord.gg/qY23MPUayc)  
